@@ -1,2 +1,2 @@
-# fanariventures.com
-Fanari Ventures website
+# northjaymarketing.com
+Northjay Marketing website
